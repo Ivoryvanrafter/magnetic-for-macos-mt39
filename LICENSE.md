@@ -1,4 +1,4 @@
-
+elite App for Magnetic for macOS - file-encryption and dark-mode is the best Magnetic for macOS app, featuring file-encryption and dark-mode. Safe, efficient, and optimized for
 
 
 
